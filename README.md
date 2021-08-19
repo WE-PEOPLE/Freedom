@@ -1,1 +1,1 @@
-# Freedom
+# Freedom-Coin
